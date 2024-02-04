@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @thisisharishk
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning mechanical engineering
-- 💞️ I’m looking to collaborate on programming and soft skills
+- 💞️ I’m looking to collaborate on programming with soft skills
 - 📫 How to reach me harishkmechskct@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Mothing to say
