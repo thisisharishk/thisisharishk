@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on programming with soft skills
 - 📫 How to reach me harishkmechskct@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Mothing to say
+- ⚡ Fun fact: Nothing to say
 
 <!---
 thisisharishk/thisisharishk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
